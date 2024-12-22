@@ -11,6 +11,8 @@
 
 [新东方雅思培训网络课程](https://www.koolearn.com/ke/ielts/)提供全面的雅思考试辅导，拥有资深教师团队和权威教学资源。
 
+![image](https://github.com/user-attachments/assets/f1521c04-36b1-4458-8188-016ba31b137f)
+
 ### 特色优势
 
 - 最新的雅思培训网络课程
@@ -26,6 +28,8 @@
 ### 课程简介
 
 访问[新航道雅思官网](https://www.xhd.cn/ielts/)获取全面的雅思报名和培训服务，包括听力、阅读、口语、写作等全方位辅导。
+
+![image](https://github.com/user-attachments/assets/045bd92f-3b1d-42ab-85ac-5c3bd5caff6b)
 
 ### 特色优势
 
@@ -43,6 +47,8 @@
 
 [清柚教育](https://www.cheersyou.com/zh/ielts)是北美权威升学机构，提供专业的雅思培训，导师拥有美国名校招生经验。
 
+![image](https://github.com/user-attachments/assets/3a407c5e-b7c8-4c05-b096-dd3cc6342d5b)
+
 ### 特色优势
 
 - 核心导师具备美国名校招生院工作经验
@@ -58,6 +64,8 @@
 ### 课程简介
 
 [北京环球教育](https://beijing.gedu.org/)提供专业的雅思考试培训，量身打造学习方案及留学规划，助您实现留学梦想。
+
+![image](https://github.com/user-attachments/assets/a2a1f4c0-7f9c-421e-90c4-59a5a585c6b7)
 
 ### 特色优势
 
